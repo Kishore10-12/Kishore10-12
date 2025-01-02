@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kishore10-12
 - 👀 I’m interested in CYBERSECURITY 
-- 🌱 I’m currently learning BCA
+- 
 - 💞️ I’m looking to collaborate on CYBERSECURITY 
 - 📫 How to reach me kishore.lm.010@gmail.com
 - 😄 Pronouns: ...
